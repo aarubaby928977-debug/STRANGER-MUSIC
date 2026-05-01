@@ -1,5 +1,5 @@
 <h2 align="center">
-    ─「 𝐒ᴛʀᴀɴɢᴇʀ 𝘅 𝐌ᴜsɪᴄ 」─
+    ─「 RONEY 𝘅 MUSIC 」─
 
 </h2>
 
